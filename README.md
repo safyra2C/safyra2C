@@ -9,3 +9,4 @@ Meu nome é Safyra Monique
 - Pratico programação com as aulas do alura
 - Pode me procurar pelo meu email 00001124077844SP@al.educacao.sp.gov.br💚
 
+![gif teste](https://media1.tenor.com/m/nv7f19HKB2oAAAAd/blank-stare-really.gif)
